@@ -1,0 +1,2 @@
+# kivo
+privacy policy
